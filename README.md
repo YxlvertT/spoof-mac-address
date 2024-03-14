@@ -1,3 +1,3 @@
-if yall need help yall can join our discord
+if you need help you can join our discord
 ...
 https://discord.gg/Qzd9AKHwNz
